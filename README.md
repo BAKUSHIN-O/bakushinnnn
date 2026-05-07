@@ -1,5 +1,5 @@
 <p align="center">
- <img src="https://github.com/BAKUSHIN-O/BAKUSHIN-O/blob/3bdb6698f12edebe4d081bb04c68a27764f7e336/north-flight-sakura-bakushin-o.gif" width="350">
+ <img src="https://github.com/BAKUSHIN-O/BAKUSHIN-O/blob/3bdb6698f12edebe4d081bb04c68a27764f7e336/north-flight-sakura-bakushin-o.gif" width="500">
 </p> 
  ִֶָ<p align="center"> ִֶָ۶ৎ˖ִ ˚𝐀𝐁𝐎𝐔𝐓 ᵐ͟ᵉ͟</p>
 ______________________________________________________________________________________________________________________
