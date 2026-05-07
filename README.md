@@ -6,5 +6,5 @@
  ִֶָ<p align="center"> ִֶָ۶ৎ˖ִ ˚𝐀𝐁𝐎𝐔𝐓 ᵐ͟ᵉ͟</p>
 ______________________________________________________________________________________________________________________
 <img align="left" src="https://github.com/BAKUSHIN-O/BAKUSHIN-O/blob/160c92789f8e8a5a7d5eb9cd4dfc71fe4e031797/sakura-bakushin-o-bakushin.gif"> <p align="right"> she they </p>
-<p align="right">  </p>
+<p align="right"> i lowkey dont like hella sensitive people LMAO </p>
 <p align="right"> virgo , born in sept  </p>
