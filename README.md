@@ -2,7 +2,7 @@
  <img src="https://github.com/BAKUSHIN-O/BAKUSHIN-O/blob/38fd985e1d92517153436c1ba57580926a22fc1d/_%20(5).jpeg"300">
 </p> 
 <p align="center">
- <img src="https://github.com/BAKUSHIN-O/BAKUSHIN-O/blob/d4d28bf9c603246e180146c12403378534f47941/chibi-bakushin-sakura-bakushin-o.gif" width="300">
+ <img src="https://github.com/BAKUSHIN-O/BAKUSHIN-O/blob/d4d28bf9c603246e180146c12403378534f47941/chibi-bakushin-sakura-bakushin-o.gif" width="400">
 </p> 
  ִֶָ<p align="center"> ִֶָ۶ৎ˖ִ</p>
  <p align="center"> ִֶָ˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆.
