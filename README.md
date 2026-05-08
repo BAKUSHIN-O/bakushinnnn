@@ -8,5 +8,5 @@
  <p align="center"> ִֶָ˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆.
 　　　.   　　˚　✭　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　　✭　.　　. 　 ˚　.　　　　 　　 　　　　 ✦</p>
 <p align="center">
- <img src="https://github.com/BAKUSHIN-O/BAKUSHIN-O/blob/ec9f83b10fcc936fe5c260ca510c8be9b2b4fbfb/_%20(6).jpeg" width="850">
+ <img src="https://github.com/BAKUSHIN-O/BAKUSHIN-O/blob/df36b3d47efe9d0f5b6c29939d650a3aa8827963/___6_-removebg-preview.png" width="800">
 </p> 
