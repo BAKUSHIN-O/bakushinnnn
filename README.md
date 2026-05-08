@@ -1,5 +1,5 @@
 <p align="center">
- <img src="https://github.com/BAKUSHIN-O/BAKUSHIN-O/blob/38fd985e1d92517153436c1ba57580926a22fc1d/_%20(5).jpeg"width="850">
+ <img src="https://github.com/BAKUSHIN-O/BAKUSHIN-O/blob/ef5164a263ab0b6ef93cdc03210a091bee7cc968/___5_-removebg-preview.png"width="850">
 </p> 
 <p align="center">
  <img src="https://github.com/BAKUSHIN-O/BAKUSHIN-O/blob/d4d28bf9c603246e180146c12403378534f47941/chibi-bakushin-sakura-bakushin-o.gif" width="300">
